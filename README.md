@@ -37,7 +37,7 @@ International business, financial and wealth planning for companies and partners
 
 ## Off the keyboard
 
-I also DJ, as ΛLΣ.
+I also DJ, as [ΛLΣ](https://ale-dj.me/).
 
 ---
 
