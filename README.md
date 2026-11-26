@@ -1,6 +1,6 @@
 # Alexandre Viola
 
-**Founder, advisor and mentor.** 
+**Founder, advisor and mentor.** I help build leaders worth following and companies worth building.
 
 I practiced law for over ten years, then founded two Brazilian legaltechs: Arbitranet, the country's first online arbitration chamber, and Justto, which automated settlement negotiation and was acquired by Softplan in 2022. After that I was global COO at Skedway and CRO at Preâmbulo Tech.
 
